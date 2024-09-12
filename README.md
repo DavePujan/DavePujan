@@ -9,8 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="[https://i.imgflip.com/65efzo.gif](https://i.imgflip.com/51msw4.mp4)"  />
-// https://i.imgflip.com/65efzo.gif
+<img align="right" height="150" src="https://media1.tenor.com/m/KbXIBwtIzoYAAAAC/piano-bruce-almighty.gif"  />
 ###
 
 <div align="left">
